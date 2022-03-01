@@ -1,0 +1,1 @@
+# ar_ag_1adtyp
